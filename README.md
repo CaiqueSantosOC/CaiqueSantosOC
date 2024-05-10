@@ -29,4 +29,4 @@
     
 </div><br/>
 
-### Apaixonado por Tecnologia, investindo em meu desenvolvimento profissional. Lets Go!
+### Passionate about Technology, investing in my professional development. Let's Go!
